@@ -1,56 +1,60 @@
 ---
-title: "Organize Your Life With 10 Simple rule"
-date: 2019-05-14T14:46:10+06:00
-description: "This is meta description"
-type: "featured"
-image: "images/featured-post/post-2.jpg"
-categories: 
-  - "Philosophy"
+title: 10 gorgeous Wedding makeup ideas
+date: 2019-05-14T14:46:10.000+06:00
+description: This is meta description
+type: featured
+image: "/images/ecc86cd4cb68dc33e336d67dcbaadaee.jpg"
+categories:
+- Philosophy
 tags:
-  - "Philosophy"
-  - "Photos"
+- Philosophy
+- Photos
+
 ---
+Probably you already have an idea of what bride makeup you want for a wedding, whether it’s shimmer or matte eyeshadows, bright or natural lips. For each [soft wedding makeup](https://www.weddingforward.com/soft-wedding-makeup/) there is a large quantity of different variations. Look at our gallery, be inspired by fresh ideas and save the pictures you like to show the makeup artist.
 
+## Soft Natural Wedding Makeup Ideas
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et
-dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex
-ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat
-nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit
-anim id est laborum. Sed ut perspiciatis unde omnis iste natus error sit voluptatem accusantium doloremque
-laudantium, totam rem aperiam, eaque ipsa quae ab illo inventore veritatis et quasi architecto beatae vitae
-dicta sunt explicabo. Nemo enim ipsam voluptatem quia voluptas sit aspernatur aut odit aut fugit, sed quia
-consequuntur magni dolores eos qui ratione voluptatem sequi nesciunt. Neque porro quisquam est, qui dolorem
-ipsum quia dolor sit amet, consectetur, adipisci velit, sed quia non numquam eius modi tempora incidunt ut
-labore et dolore magnam aliquam quaerat voluptatem.
+![](/images/bride-makeup-wedding-soft-natural-bridal-beauty-joanna-kustra.jpg)
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et
-dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex
-ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat
-nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit
-anim id est laborum. Sed ut perspiciatis unde omnis iste natus error sit voluptatem accusantium doloremque
-laudantium, totam rem aperiam, eaque ipsa quae ab illo inventore veritatis et quasi architecto beatae vitae
-dicta sunt explicabo. Nemo enim ipsam voluptatem quia voluptas sit aspernatur aut odit aut fugit, sed quia
-consequuntur magni dolores eos qui ratione voluptatem sequi nesciunt. Neque porro quisquam est, qui dolorem
-ipsum quia dolor sit amet, consectetur, adipisci velit, sed quia non numquam eius modi tempora incidunt ut
-labore et dolore magnam aliquam quaerat voluptatem.
+## Bridal Looks With Classy Makeup
 
+![](/images/bride-makeup-wedding-gentle-bride-with-red-liips-olgacretzu.jpg)
 
-> Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut
-labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut
-aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum
+## Bride Makeup With Accent On Eyes
 
+![](/images/bride-makeup-wedding-classy-with-arrown-elstile.jpg)
 
-![](../images/post-img.jpg)
+## Lovely Smoky Eyes For Wedding
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et
-dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex
-ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat
-nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit
-anim id est laborum. Sed ut perspiciatis unde omnis iste natus error sit voluptatem accusantium doloremque
-laudantium, totam rem aperiam, eaque ipsa quae ab illo inventore veritatis et quasi architecto beatae vitae
-dicta sunt explicabo. Nemo enim ipsam voluptatem quia voluptas sit aspernatur aut odit aut fugit, sed quia
-consequuntur magni dolores eos qui ratione voluptatem sequi nesciunt. Neque porro quisquam est, qui dolorem
-ipsum quia dolor sit amet, consectetur, adipisci velit, sed quia non numquam eius modi tempora incidunt ut
-labore et dolore magnam aliquam quaerat voluptatem.
+![](https://thecrimsonbride.com/wp-content/uploads/2020/10/Bridal-Makeup-Looks-For-Intimate-Wedding-10-768x1152.jpg)
 
+## Light shimmery subtleness
 
+A romantic blend of a flushed base, light shimmery eyelids, and a pale pink lip, this makeup look is the perfect concoction for your day wedding. Whether you’re opting for a pastel-hued lehenga or a rather solid one, this look works its charm every time.
+
+![](https://i.pinimg.com/474x/b4/ff/e1/b4ffe18ce09b64a0b9c0cc2cdf54b632.jpg)
+
+## Smokey-shimmery eyes
+
+With smokey-shimmery paired with pale and subdued lips, this hot makeup look is a bridal favorite and for all the right reasons. Whether you opt for the classic black, brown, & gold look or a palette that complements your outfit, this makeup style looks amazing.
+
+![](https://i.pinimg.com/474x/67/20/5d/67205dbd17f2a40cbf9899972ba405db.jpg)
+
+## Matte & dewy
+
+This soft wedding look achieved with nude lips, a light dewy base and soft matte eyes sans eyeliner is simply spectacular. If understated elegance is your thing then this look is what you should opt for.
+
+![](https://i.pinimg.com/474x/3c/4a/49/3c4a49e4f9aaeda14d6cedbf9d890ce6.jpg)
+
+## Dual-toned gorgeousness
+
+Two-toned soft smokey-shimmery eyes coupled with flushed cheeks and a pretty pink lip just like this one is perfect for your Ivory or off-white colored outfit. It’ the right hint of color to make your subdued lehenga pop.
+
+![](https://thecrimsonbride.com/wp-content/uploads/2020/10/Bridal-Makeup-Looks-For-Intimate-Wedding-20-768x960.jpg)
+
+## Naturally flushed charm
+
+With the slightest hint of nude hues, this makeup look is all about playing with a neutral palette to only further highlight your features. With naturally defined eyebrows and a pale lip to go along, this look is what we call simplicity at its best.
+
+![](https://thecrimsonbride.com/wp-content/uploads/2020/10/Bridal-Makeup-Looks-For-Intimate-Wedding-23-768x936.jpg)
