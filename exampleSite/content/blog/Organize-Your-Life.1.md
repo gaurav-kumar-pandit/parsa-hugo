@@ -1,14 +1,21 @@
 ---
 title: 10 gorgeous Wedding makeup ideas
-date: 2019-05-14T14:46:10.000+06:00
-description: This is meta description
+date: 2020-06-05T08:46:10+00:00
+description: 'makeup ideas for your gorgeous wedding looks '
 type: featured
 image: "/images/ecc86cd4cb68dc33e336d67dcbaadaee.jpg"
 categories:
-- Philosophy
+- looks
+- wedding
+- ideas
+- makeup
 tags:
-- Philosophy
-- Photos
+- 'indian wedding '
+- looks
+- wedding
+- wedding looks
+- ideas
+- makeup
 
 ---
 Probably you already have an idea of what bride makeup you want for a wedding, whether it’s shimmer or matte eyeshadows, bright or natural lips. For each [soft wedding makeup](https://www.weddingforward.com/soft-wedding-makeup/) there is a large quantity of different variations. Look at our gallery, be inspired by fresh ideas and save the pictures you like to show the makeup artist.
